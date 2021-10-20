@@ -1,0 +1,2 @@
+# Gym-Website
+The COVID-19 pandemic has forced many people to live a more digital way of working and living. From homeworking to digital fitness, the online world is key to moving forward. Being able to adapt and take advantage of new online opportunities is crucial to success.   You need a strong online presence so that potential members can find you. 81% of people search online for a product or service. Part of a strong online presence is a fully mobile-optimized website. Make it as easy as possible for customers to find you.  So here we have launched a Gym Website 
